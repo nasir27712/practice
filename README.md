@@ -5,4 +5,5 @@ Preparation for Comprehensive exams
 Preparation for qualifying exams 
 Preparation for reseach brief 
 forming commeettee board 
-Writing papers 
+I want to write biostatistics books for teaching materials 
+I want to create Community empowerment 

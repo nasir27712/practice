@@ -1,1 +1,8 @@
 # practice
+jangan pernah menyerah belajar
+Big plan for this semester: 
+Preparation for Comprehensive exams 
+Preparation for qualifying exams 
+Preparation for reseach brief 
+forming commeettee board 
+Writing papers 
